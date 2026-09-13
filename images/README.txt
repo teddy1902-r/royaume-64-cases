@@ -1,0 +1,1 @@
+Les images des chapitres sont conservées en haute qualité.
